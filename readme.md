@@ -4,3 +4,5 @@ feel free to explore this place :]
 
 Smile my dear! after all, the world is a stage, 
 and a stage is a world of entertainment!
+
+Adieu
